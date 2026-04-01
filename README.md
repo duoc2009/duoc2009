@@ -1,4 +1,4 @@
-# 👋 Chào bạn, tôi là Lê Bá Ngọc Huy (duoc2009)
+# 👋 Chào bạn, tôi là BA HUY
 
 ### 📰 Nhà báo | 🤖 AI Specialist | 📊 Infographic & Data Journalism
 
